@@ -1,4 +1,4 @@
-#  
+#  jujutsu infinite Scripts elite is the best jujutsu infinite Script, featuring auto-upgrade and no cooldown. Safe and powerful for all your needs.
 
 
 
